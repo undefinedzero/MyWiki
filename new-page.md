@@ -1,4 +1,4 @@
-# new page？
+# new page?
 
 ## Getting Super Powers
 
